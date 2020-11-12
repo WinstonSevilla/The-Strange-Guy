@@ -1,5 +1,5 @@
 # The-Strange-Guy
-Thing Speicial just a Strange guy. :):
+Nothing Speicial just a Strange guy. :):
 
 
 <img src="https://avatars2.githubusercontent.com/u/71320073?s=460&u=f4615a12f02171944a07fcbbf28b4d3bcd9caa32&v=4" alt="Strange" width="200"/>
