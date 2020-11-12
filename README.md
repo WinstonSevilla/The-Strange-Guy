@@ -14,8 +14,8 @@ I'm Specilize at Portraits and Fantasy Editing.
 I also do designing
 
 ###Fact about me
-I'm to Lazy
-I'm 
+I'm too Lazy
+Like Sleeping
 
 ### Background 🤏 
 I'm currently studying at West Visayas Stae University as an IT student Major in Multimedia
